@@ -1,2 +1,0 @@
-# FKS
-Online Beauty Shop
